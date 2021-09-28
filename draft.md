@@ -6,6 +6,8 @@ hat sich an einen Bagger gekettet, um ihr Haus zu retten. Obwohl das Land Sicher
 die Familie während der Brückenbauarbeiten ihr Wohnhaus verlassen. Das Haus übersteht die Baumaßnahmen nicht, wird
 unbewohnbar und muss letztlich abgerissen werden.
 
+![Sicherungsmaßnahmen am Wohnhaus in Heinersbrück](wohnhaus_heinersbrueck.jpeg)
+
 Die Familie zieht gegen das Land vor Gericht. Das Gerichtsverfahren zieht sich über mehrere Jahre hin. Die Familie
 gewinnt das Verfahren in erster Instanz, aber das Land geht in Revision. Während des langjährigen Prozesses versterben
 beide Kläger. Die Tochter des Ehepaares erbt den bereits 8 Jahre andauernden Entschädigungsprozess. Die jugen Studentin

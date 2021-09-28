@@ -1,3 +1,2 @@
-# Brückenbau zerstört Wohnaus
+# Diese Seite befindet sich im Aufbau
 
-![Bagger vor dem Zollhaus](zollhaus.jpeg)
